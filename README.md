@@ -7,6 +7,7 @@
 - Определите свою личность и интересы.
 - Настройте свою комнату в общежитии.
 ```
+![ягк.](kandinsky-download-1709796958720.png)
 ![ягк.](https://kartinkof.club/uploads/posts/2022-03/1648347471_2-kartinkof-club-p-malenkii-messi-mem-2.jpg)
 ### Это приложение идеально подходит для:
 ```
